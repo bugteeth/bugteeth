@@ -13,8 +13,6 @@ kody, 19 amab... adult <img width="150" height="20" alt="tumblr_a8f514852790c934
 
 <br>
 
-<br>
-
 <p align="center">
 -15 iwec, dni: racism, homophobia/transphobia & proship 
 
