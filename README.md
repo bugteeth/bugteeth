@@ -1,4 +1,4 @@
-<p align="center">
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/8dd9bc6e-3e95-47f0-b737-e8f0b2511cee" /><p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&weight=700&size=32&pause=1000&color=CD0000&width=435&lines=my+mind+is+torturing+my+body..." alt="Typing SVG" /></a>
 
 <p align="center">
@@ -22,3 +22,11 @@ text text text
 <br>
 
 <p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&weight=700&size=32&pause=1000&color=7E0000&width=435&lines=scared+to+live%2C+scared+to+die..." alt="Typing SVG" /></a>
+
+<br>
+
+<br>
+
+<p align="center">
+
