@@ -13,11 +13,6 @@ kody, 19 amab... adult <img width="150" height="20" alt="tumblr_a8f514852790c934
 
 <br>
 
-<p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Dancing+Script&weight=700&size=32&pause=1000&color=950000&width=435&lines=scared+to+live%2C+scared+to+die..." alt="Typing SVG" /></a>
-
-<br>
-
 <br>
 
 <p align="center">
