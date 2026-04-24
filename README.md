@@ -4,7 +4,7 @@
 <br>
 
 <p align="center">
-kody, 19 amab... adult <img width="150" height="20" alt="tumblr_a8f514852790c934546630bfd9c20a38_40000670_250" src="https://github.com/user-attachments/assets/51780a12-3a7e-4170-a5aa-5e53e9d38bfc" />
+kody, 19 (adult)... amab <img width="150" height="20" alt="tumblr_a8f514852790c934546630bfd9c20a38_40000670_250" src="https://github.com/user-attachments/assets/51780a12-3a7e-4170-a5aa-5e53e9d38bfc" />
 
 <br>
 
